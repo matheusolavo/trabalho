@@ -23,3 +23,7 @@ o Temerario, seu mais novo supercarro híbrido plug-in, que marca a transição 
 Motorização: O Temerario combina um motor V8 biturbo a gasolina com três motores elétricos, resultando em uma potência total de 920 cv. Essa configuração permite ao veículo acelerar de 0 a 100 km/h em impressionantes 2,7 segundos, atingindo uma velocidade máxima de 343 km/h
 
 Design: O design do Temerario é ousado e inovador, mantendo a essência da Lamborghini, mas com linhas mais refinadas e menos polarizadoras em comparação aos modelos anteriores. A estreia mundial ocorreu durante o prestigiado evento "Motorsports Gathering" no Pebble Beach Golf Course, na Califórnia.
+
+
+Nome: matheus olavo santos ramalho amaral
+      Kaio Schobiner 
